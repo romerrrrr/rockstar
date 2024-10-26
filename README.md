@@ -34,7 +34,7 @@ The fact that the "Rockstar" kept agreeing to my unsure questions is also proof 
 ### Point 3: Shifting and Changing the Story
 In the group chat, she said that her "brain" was taken away.
 
-![Image 1](IMG_20231111_11443080_gallery.png)
+![Image 1](https://raw.githubusercontent.com/romerrrrr/rockstar/refs/heads/main/IMG_20241026_203609.jpeg)
 
 However, when Jomariz and I interviewed her and asked if her spirit was taken away, she said yes. This is highly suspicious, as she completely ignored Jomariz's question about her brain and shifted the conversation to other topics like asking if the people outside dancing are practicing for the cheerleading thing.
 
@@ -42,7 +42,7 @@ After she said those things, I asked her what the "Big Black Man" wanted or what
 
 ### Point 4: She Planned This All Along
 
-![Image 2](IMG_20231111_11512653_gallery.png)
+![Image 2](https://raw.githubusercontent.com/romerrrrr/rockstar/refs/heads/main/IMG_20241026_203612.jpeg)
 
 The "Rockstar" immediately agreed with me when I asked if the building was haunted. I asked this question because I remembered she had said this in the group chat. I then asked her how many people she knew who had gone through this experience, and she said three. However, I have never heard of possessions occurring in our building, and I was studying in the same building last year while the "Rockstar" was studying in a whole different building. So, how does she know about these possessions and I don't? She seemed shocked when I told her that I didn't know about them, as if she is trying to emphasize that she knows more about the building than I do. I also asked her if she knew about the possessions before they happened, and she said yes. Additionally, the "Rockstar" was absent on Monday and Tuesday before the incident happened on Wednesday. Since she knew about the possessions ahead of time, it makes sense that she planned the whole thing.
 
